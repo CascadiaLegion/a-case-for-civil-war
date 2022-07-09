@@ -11,8 +11,13 @@ This is an aggregation of articles, data and opinions that make a case the Unite
 
 ## References & Resrouces
 
+#### Articles
+
 [White Extremist Ideology Drives Many Deadly Shootings - The New York Times](https://www.nytimes.com/interactive/2019/08/04/us/white-extremist-active-shooter.html)
+Daniel Pinchbeck - Is Civil War Inevitable - The Next Civil War
+
+#### Videos
+
 [Tim Pool discusses his predictions for civil war, rising tensions](https://youtu.be/Fb9pu4u-Ogg)
 [Tim Pool New Poll Shows Fear Civil War 2 Is Coming For Assassination Grows ](https://youtu.be/XH47hafoZkw)
 [Tim Pool Roe V Wade May Become Final Catalyst On Path To Second Civil War](https://youtu.be/U9Q9kjdJ3rM)
-Daniel Pinchbeck - Is Civil War Inevitable - The Next Civil War
