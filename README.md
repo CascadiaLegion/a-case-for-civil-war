@@ -4,10 +4,11 @@ This is an aggregation of articles, data and opinions that make a case the Unite
 
 ## Table of Contents
 
-1. [Civil Strike vs Civil War](#example)
-2. [Potential Causes](#example2)
-3. [What a Modern Civil War Might Look Like](#third-example)
-4. [Participating Factions](#fourth-examplehttpwwwfourthexamplecom)
+1. [Table of Contents](https://github.com/CascadiaLegion/a-case-for-civil-war)
+2. [Civil Strife vs Civil War](/civil-strife-vs-civil-war/index.md)
+3. [Potential Causes](/potential-causes/index.md)
+4. [What a Modern Civil War Might Look Like](/what-a-modern-civil-war-might-look-like/index.md)
+5. [Participating Factions](/participating-factions/index.md)
 
 ## References & Resrouces
 
