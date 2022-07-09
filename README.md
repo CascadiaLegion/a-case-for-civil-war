@@ -16,12 +16,13 @@ This is an aggregation of articles, data and opinions that make a case the Unite
 
 [White Extremist Ideology Drives Many Deadly Shootings - The New York Times](https://www.nytimes.com/interactive/2019/08/04/us/white-extremist-active-shooter.html)\
 [Is Civil War Inevitable?](https://danielpinchbeck.substack.com/p/is-civil-war-inevitable)
+[SPLC Poll Finds Substantial Support for ‘Great Replacement’ Theory and Other Hard-Right Ideas](https://www.splcenter.org/news/2022/06/01/poll-finds-support-great-replacement-hard-right-ideas)
 
 #### Videos
 
-[Tim Pool discusses his predictions for civil war, rising tensions](https://youtu.be/Fb9pu4u-Ogg)\
-[Tim Pool New Poll Shows Fear Civil War 2 Is Coming For Assassination Grows ](https://youtu.be/XH47hafoZkw)\
-[Tim Pool Roe V Wade May Become Final Catalyst On Path To Second Civil War](https://youtu.be/U9Q9kjdJ3rM)
+[Tim Discusses His Prediction For Civil War And Escalating Racial Tensions](https://youtu.be/Fb9pu4u-Ogg)\
+[Fears CIVIL WAR 2 Is Coming As SHOCKING Number Of Democrat Men And GOP Women Support Assassinations](https://youtu.be/XH47hafoZkw)\
+[Roe v Wade May Be The CATALYST For A New Civil War](https://youtu.be/U9Q9kjdJ3rM)
 
 ### Books
 

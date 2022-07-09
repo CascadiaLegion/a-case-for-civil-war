@@ -9,3 +9,11 @@
 "Civil War" is defined as having a thousand combatant deaths.
 
 Definitions defined by [The Peace Research Institute](https://www.prio.org/)
+
+Recent SPLC poll in June of 2022, describes the lengths in which people across age groups willing to engage in political violence.
+
+> "44% of Americans agree that the “U.S. seems headed toward a civil war in the near future,” including 53% of Republicans and 39% of Democrats. - [SPLC Poll Finds Substantial Support for ‘Great Replacement’ Theory and Other Hard-Right Ideas](https://www.splcenter.org/news/2022/06/01/poll-finds-support-great-replacement-hard-right-ideas)"
+
+![Political Revolution](/partisanship-violence-1.png)
+![Threatening Politicans](/partisanship-violence-2.png)
+![Assasination](/partisanship-violence-2.png)
