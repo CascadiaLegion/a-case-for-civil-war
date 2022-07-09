@@ -14,7 +14,7 @@ This is an aggregation of articles, data and opinions that make a case the Unite
 #### Articles
 
 [White Extremist Ideology Drives Many Deadly Shootings - The New York Times](https://www.nytimes.com/interactive/2019/08/04/us/white-extremist-active-shooter.html)
-Daniel Pinchbeck - Is Civil War Inevitable - The Next Civil War
+[Is Civil War Inevitable?](https://danielpinchbeck.substack.com/p/is-civil-war-inevitable)
 
 #### Videos
 
