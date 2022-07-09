@@ -22,3 +22,7 @@ This is an aggregation of articles, data and opinions that make a case the Unite
 [Tim Pool discusses his predictions for civil war, rising tensions](https://youtu.be/Fb9pu4u-Ogg)\
 [Tim Pool New Poll Shows Fear Civil War 2 Is Coming For Assassination Grows ](https://youtu.be/XH47hafoZkw)\
 [Tim Pool Roe V Wade May Become Final Catalyst On Path To Second Civil War](https://youtu.be/U9Q9kjdJ3rM)
+
+### Books
+
+The Next Civil War, Stephen Marche
